@@ -54,4 +54,4 @@ Com uma experiência intuitiva e recursos que facilitam o dia a dia, a gestão f
 
 ---
 
-<sub>Fefade</sub>
+<sub>♥ Feito para simplificar.</sub>
